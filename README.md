@@ -4,3 +4,6 @@
 
 - Reut Nagar
 - Libi Friedman
+- Yehudit Gotlieb
+- Yeudit Chuwer
+- Devora buxenboim
